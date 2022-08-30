@@ -1,8 +1,8 @@
+title: Michelle Michel
 remote_theme: ColinMaudry/cayman
 plugins:
 - jekyll-remote-theme
 github:
-  title: Michelle Michel
   is_project_page: false
   show_downloads: false
-  matomo_id: 15
+matomo_id: 15
