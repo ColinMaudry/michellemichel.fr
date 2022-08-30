@@ -1,4 +1,5 @@
 title: Michelle Michel
+description: Pour nous, pour vous
 remote_theme: ColinMaudry/cayman
 plugins:
 - jekyll-remote-theme
