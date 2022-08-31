@@ -10,6 +10,6 @@ Zut le premier titre de ce fichier devient le titre du site, dans la bannière, 
 
 ## Paroles de stars
 
-> Pour nager dans les eaux troubles des lendemains, faut pas avoir peur se mouiller.
+> Pour nager dans les eaux troubles des lendemains, faut pas avoir peur de se mouiller.
 
 *Mylène Farmer, 8 juin 1999, dans une interview à Télé Z*
