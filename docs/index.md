@@ -11,5 +11,3 @@ On vous aime public chéri !
 > Pour nager dans les eaux troubles des lendemains, faut pas avoir peur de se mouiller.
 
 *Mylène Farmer, 8 juin 1999, dans une interview à Télé Z*
-
-## Vu dans la presse
