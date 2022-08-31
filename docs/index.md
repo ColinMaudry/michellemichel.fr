@@ -4,9 +4,7 @@
 * dans un mois
 * dans une éternité
 
-On vous aime public chéri ! Woohoo !
-
-Zut le premier titre de ce fichier devient le titre du site, dans la bannière, je corrigerai ça.
+On vous aime public chéri !
 
 ## Paroles de stars
 
