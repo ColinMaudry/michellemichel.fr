@@ -1,9 +1,3 @@
 ## Dates à venir
 
-* dimanche 25 septembre dans la station de métro Gros-Chêne (Maurepas) pour l'inauguration
-
-## Paroles de stars
-
-> Pour nager dans les eaux troubles des lendemains, faut pas avoir peur de se mouiller.
-
-*Mylène Farmer, 8 juin 1999, dans une interview à Télé Z*
+* dimanche 25 septembre, **[dans la station de métro Gros-Chêne](https://www.openstreetmap.org/node/8261659641#map=16/48.1252/-1.6641)** (Maurepas) pour l'inauguration de la ligne b du métro
