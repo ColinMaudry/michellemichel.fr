@@ -1,10 +1,6 @@
 ## Dates à venir
 
-* dans un jour
-* dans un mois
-* dans une éternité
-
-On vous aime public chéri !
+* dimanche 25 septembre dans la station de métro Gros-Chêne (Maurepas) pour l'inauguration
 
 ## Paroles de stars
 
