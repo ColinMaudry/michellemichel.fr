@@ -10,11 +10,11 @@
 * Le 19/11/2022 15h, à l'ESAT de Noyal-Châtillon-sur-Seiche
 * Le 25/09/2022 à 12h20 et 13h20, [dans la station de métro Gros-Chêne](https://www.openstreetmap.org/node/8261659641#map=16/48.1252/-1.6641) (Rennes, Maurepas) pour l'inauguration de la ligne b du métro
 * Le 10/07/2022 à 15h40, au [festival Rue des arts](https://ruedesarts.net/-Programmation-#anchor186), à Taillis
-* Le 6/07/22 à [La Basse cours](mailto:https://labassecour.org/) à Rennes
-* Le 21/06/22 fête de la Musique au [Oan's pub](mailto:https://fr-fr.facebook.com/oans.pubb/) à Rennes
-* Le 16/06/22 Boom HF Bretagne, [Les ADV](mailto:https://www.lesateliersduvent.org/) à Rennes
-* Le 12/03/22 au [Doux Jésus](mailto:https://fr-fr.facebook.com/doujezu/) à Rennes
-* Le 02/10/21 Le Bout Salé à Talensac 
-*  Le 3/09/21 au Parc Villeneuve à Rennes
+* Le 6/07/2022 à [La Basse cours](https://labassecour.org/) à Rennes
+* Le 21/06/2022 fête de la Musique au [Oan's pub](https://fr-fr.facebook.com/oans.pubb/) à Rennes
+* Le 16/06/2022 Boom HF Bretagne, [Les ADV](https://www.lesateliersduvent.org/) à Rennes
+* Le 12/03/2022 au [Doux Jésus](https://fr-fr.facebook.com/doujezu/) à Rennes
+* Le 02/10/2021 Le Bout Salé à Talensac
+* Le 3/09/2021 au Parc Villeneuve à Rennes
 * 9 octobre 2021 à 19h, [au Café de la Pente](https://www.lepotcommun.com/programmation/michelle-michel-concert-de-fin-de-residence) (Rochefort-en-Terre) parce qu'on y a fait une résidence !
 * (on met à jour l'historique petit à petit... ça remonte à 2017 😅)
