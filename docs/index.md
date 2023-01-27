@@ -18,8 +18,9 @@
 * Le 16 juin Boom HF Bretagne, [Les ADV](https://www.lesateliersduvent.org/) à Rennes.
 * Le 12 mars au [Doux Jésus](https://fr-fr.facebook.com/doujezu/) à Rennes.
 
-  **En 2021 :**
-* Le 02 octobre Le Bout Salé à Talensac.
+**En 2021 :**
+
+* Le 2 octobre Le Bout Salé à Talensac.
 * Le 3 septembre au Parc Villeneuve à Rennes.
 * Le 9 octobre à 19h, [au Café de la Pente](https://www.lepotcommun.com/programmation/michelle-michel-concert-de-fin-de-residence) (Rochefort-en-Terre) parce qu'on y a fait une résidence !
 * ... (on met à jour l'historique petit à petit... ça remonte à 2017 😅).
