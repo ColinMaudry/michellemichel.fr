@@ -1,11 +1,11 @@
 ## Nos prochains concerts ! 🎉💄
 
-* Le vendredi 3 février 2023 [au](https://www.openstreetmap.org/node/258359007#map=19/48.11908/-1.66760)[ Sabli](https://www.facebook.com/lesablier.rennes/)[er](https://www.openstreetmap.org/node/258359007#map=19/48.11908/-1.66760) (Rennes)
-* Le dimanche 19 mars 2023 au Festival Quartiers en scène / Cercle Paul Bert Ginguené (Rennes)
+* Le vendredi 3 février à 20h30 [au Sablier](https://www.openstreetmap.org/node/258359007#map=19/48.11908/-1.66760) (Rennes)
+* Le dimanche 19 mars au Festival ‘Quartiers en scène’ CPB Ginguené (Rennes)
 
 ## Les concerts où on a mis le feu 🔥
 
-**En 2022 :**
+**L’année dernière :**
 
 * Le 17 décembre [à l'église de Saint-Christophe-des-Bois](https://www.infolocale.fr/associations/organisme-a-lasso-des-bois-519588/evenement-saint-christophe-des-bois-concert-spectacle-musical-chorale-michelle-michel-7757630). Merci à À l'asso des bois et la à la paroisse pour leur accueil chaleureux !
 * Même jour au [Jeu De Paume](mailto:https://www.jeudepaumerennes.fr/) (Rennes centre), pour la petite sauterie de Noël du lieu qui nous accueille pour nos répés !
