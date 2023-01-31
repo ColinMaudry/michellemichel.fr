@@ -1,6 +1,6 @@
 ## Nos prochains concerts ! 🎉💄
 
-* Le vendredi 3 février à 20h30 [au Sablier](https://www.openstreetmap.org/node/258359007#map=19/48.11908/-1.66760) (Rennes)
+* Le vendredi 3 février à 20h30 [au Sablier](https://facebook.com/events/s/concert-chorale-pop-michelle-m/1245705576034279/) (Rennes)
 * Le dimanche 19 mars au Festival ‘Quartiers en scène’ CPB Ginguené (Rennes)
 
 ## Les concerts où on a mis le feu 🔥
