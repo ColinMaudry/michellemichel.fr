@@ -8,7 +8,7 @@
 
 * Le vendredi 3 février à 20h30 [au](https://facebook.com/events/s/concert-chorale-pop-michelle-m/1245705576034279/) [Sablier](https://happeningnext.com/event/concert-chorale-pop-michelle-michel-karaok%C3%A9-eid3a09q2s2kd) (Rennes)
 
-**L’année dernière :**
+**En 2022 :**
 
 * Le 17 décembre [à l'église de Saint-Christophe-des-Bois](https://www.infolocale.fr/associations/organisme-a-lasso-des-bois-519588/evenement-saint-christophe-des-bois-concert-spectacle-musical-chorale-michelle-michel-7757630). Merci à À l'asso des bois et la à la paroisse pour leur accueil chaleureux !
 * Même jour au [Jeu De Paume](mailto:https://www.jeudepaumerennes.fr/) (Rennes centre), pour la petite sauterie de Noël du lieu qui nous accueille pour nos répés !
