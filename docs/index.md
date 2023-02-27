@@ -4,7 +4,7 @@
 
 ## Les concerts où on a mis le feu 🔥
 
-**Cette année :**
+**Cette année 2023 :**
 
 * Le vendredi 3 février à 20h30 [au](https://facebook.com/events/s/concert-chorale-pop-michelle-m/1245705576034279/) [Sablier](https://happeningnext.com/event/concert-chorale-pop-michelle-michel-karaok%C3%A9-eid3a09q2s2kd) (Rennes)
 
