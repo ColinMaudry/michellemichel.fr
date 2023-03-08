@@ -1,14 +1,18 @@
 ## Nos prochains concerts ! 🎉💄
 
-* Le dimanche 19 mars le matin au [Cercle Paul Bert Ginguené](https://cpbginguene.fr/infos-pratiques/) (Rennes) dans le cadre du Festival ‘Quartiers en scène’ (on ajoute l'heure du concert dès qu'on l'a !)
+Le dimanche 19 mars à 11h30 au [Cercle Paul Bert Ginguené](https://cpbginguene.fr/infos-pratiques/) à Rennes - Festival ‘Quartiers en scène’.
+
+Le mercredi 17 mai à 19h au [restaurant Ana Ana ](https://www.facebook.com/AnaAnaPlouasne/)à Plouasne.
+
+Le vendredi 2 juin en soirée à la [Garden Partie](https://www.facebook.com/LaGardenPartie/?locale=fr_FR) à Rennes.
 
 ## Les concerts où on a mis le feu 🔥
 
-**Cette année 2023 :**
+### **2023** 
 
-* Le vendredi 3 février à 20h30 [au](https://facebook.com/events/s/concert-chorale-pop-michelle-m/1245705576034279/) [Sablier](https://happeningnext.com/event/concert-chorale-pop-michelle-michel-karaok%C3%A9-eid3a09q2s2kd) (Rennes)
+Le vendredi 3 février à 20h30 [au](https://facebook.com/events/s/concert-chorale-pop-michelle-m/1245705576034279/) [Sablier](https://happeningnext.com/event/concert-chorale-pop-michelle-michel-karaok%C3%A9-eid3a09q2s2kd) (Rennes)
 
-**En 2022 :**
+### **2022**
 
 * Le 17 décembre [à l'église de Saint-Christophe-des-Bois](https://www.infolocale.fr/associations/organisme-a-lasso-des-bois-519588/evenement-saint-christophe-des-bois-concert-spectacle-musical-chorale-michelle-michel-7757630). Merci à À l'asso des bois et la à la paroisse pour leur accueil chaleureux !
 * Même jour au [Jeu De Paume](mailto:https://www.jeudepaumerennes.fr/) (Rennes centre), pour la petite sauterie de Noël du lieu qui nous accueille pour nos répés !
@@ -21,7 +25,7 @@
 * Le 16 juin Boom HF Bretagne, [Les ADV](https://www.lesateliersduvent.org/) à Rennes.
 * Le 12 mars au [Doux Jésus](https://fr-fr.facebook.com/doujezu/) à Rennes.
 
-**En 2021 :**
+### **2021**
 
 * Le 2 octobre Le Bout Salé à Talensac.
 * Le 3 septembre au Parc Villeneuve à Rennes.
