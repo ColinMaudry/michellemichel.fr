@@ -2,9 +2,9 @@
 
 Le dimanche 19 mars à 11h30 au [Cercle Paul Bert Ginguené](https://cpbginguene.fr/infos-pratiques/) à Rennes - Festival ‘Quartiers en scène’.
 
-Le mercredi 17 mai à 19h au [restaurant Ana Ana ](https://www.facebook.com/AnaAnaPlouasne/)à Plouasne.
+Le mercredi 17 mai à 19h au [restaurant Ana Ana ](https://www.facebook.com/AnaAnaPlouasne/)à Plouasne ([c'est ici](https://www.openstreetmap.org/way/263116412#map=16/48.3011/-2.0074)).
 
-Le vendredi 2 juin en soirée à la [Garden Partie](https://www.facebook.com/LaGardenPartie/?locale=fr_FR) à Rennes.
+Le vendredi 2 juin en soirée à la [Garden Partie](https://www.facebook.com/LaGardenPartie/?locale=fr_FR) à Rennes ([c'est là](https://www.openstreetmap.org/node/4225479951#map=16/48.1078/-1.6518)).
 
 ## Les concerts où on a mis le feu 🔥
 
