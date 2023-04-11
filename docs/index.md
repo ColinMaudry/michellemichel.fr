@@ -1,6 +1,7 @@
 ## Nos prochains concerts ! 🎉💄
 
-Le mercredi 17 mai à 19h au [restaurant Ana Ana ](https://www.facebook.com/AnaAnaPlouasne/)à Plouasne ([c'est ici](https://www.openstreetmap.org/way/263116412#map=16/48.3011/-2.0074)).
+* Le vendredi 5 mai à 19h30 aux [P'tits Bateaux](https://www.lesptitsbateaux-rennes.com/) à Rennes
+* Le mercredi 17 mai à 19h au [restaurant Ana Ana ](https://www.facebook.com/AnaAnaPlouasne/)à Plouasne ([c'est ici](https://www.openstreetmap.org/way/263116412#map=16/48.3011/-2.0074)).
 
 ## Les concerts où on a mis le feu 🔥
 
