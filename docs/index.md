@@ -1,12 +1,12 @@
 ## Nos prochains concerts ! 🎉💄
 
-* Le vendredi 5 mai à 19h30 aux [P'tits Bateaux](https://www.lesptitsbateaux-rennes.com/) (Rennes)
 * Le mercredi 17 mai à 19h au [restaurant Ana Ana ](https://www.facebook.com/AnaAnaPlouasne/)(Plouasne, [c'est ici](https://www.openstreetmap.org/way/263116412#map=16/48.3011/-2.0074)).
 
 ## Les concerts où on a mis le feu 🔥
 
 ### **2023**
 
+* Le 5 mai à 19h30 aux [P'tits Bateaux](https://www.lesptitsbateaux-rennes.com/) (Rennes)
 * Le 19 mars au [Cercle Paul Bert Ginguené](https://cpbginguene.fr/infos-pratiques/) (Rennes) - Festival "Quartiers en scène".
 * Le 3 février à 20h30 [au](https://facebook.com/events/s/concert-chorale-pop-michelle-m/1245705576034279/) [Sablier](https://happeningnext.com/event/concert-chorale-pop-michelle-michel-karaok%C3%A9-eid3a09q2s2kd) (Rennes)
 
