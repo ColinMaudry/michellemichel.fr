@@ -3,8 +3,8 @@
 * Le mercredi 17 mai à 19h au [restaurant Ana Ana ](https://www.facebook.com/AnaAnaPlouasne/)(Plouasne, [c'est ici](https://www.openstreetmap.org/way/263116412#map=16/48.3011/-2.0074)).
 * Le vendredi 2 juin à 20h30 à Hôtel Dieu (Rennes)
 * Le vendredi 23 juin au Gabier Noir (Rennes) *horaires en soirée, on vous précise bientôt*
-* Le dimanche 3 septembre 15h-17h au parc Oberthur  (Rennes)
-* Le dimanche 29 septembre à 15h à Lassy. *On vous donne les info sur lieu bientôt*
+* Le dimanche 3 septembre 15h-17h au parc Oberthur (Rennes)
+* Le dimanche 29 septembre à 15h à Lassy. *On vous donne les info sur le lieu bientôt*
 
 ## Les concerts où on a mis le feu 🔥
 
