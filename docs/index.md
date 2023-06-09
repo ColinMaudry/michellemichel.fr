@@ -1,10 +1,8 @@
 ## Nos prochains concerts ! 🎉💄
 
-* Le vendredi 23 juin au Gabier Noir (Rennes) *horaires en soirée, on vous précise bientôt*
-
-
+* Le vendredi 23 juin à 20h30 au Gabier Noir (Rennes) *horaires en soirée, on vous précise bientôt*
 * Le dimanche 3 septembre 15h-17h au parc Oberthur (Rennes)
-* Le dimanche 29 septembre à 15h à Lassy. *On vous donne les info sur le lieu bientôt*
+* Le dimanche 24 septembre à 15h à Lassy. *On vous donne les info sur le lieu bientôt*
 
 ## Les concerts où on a mis le feu 🔥
 
