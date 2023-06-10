@@ -1,8 +1,8 @@
 ## Nos prochains concerts ! 🎉💄
 
-* Le vendredi 23 juin à 20h30 au Gabier Noir (Rennes) *horaires en soirée, on vous précise bientôt*
-* Le dimanche 3 septembre 15h-17h au parc Oberthur (Rennes)
-* Le dimanche 24 septembre à 15h à Lassy. *On vous donne les info sur le lieu bientôt*
+* Le vendredi 23 juin à 20h30 au [Gabier Noir](https://www.openstreetmap.org/node/4955206124#map=18/48.10178/-1.67840) (Rennes)
+* Le dimanche 3 septembre 15h-17h au [parc Oberthur](https://www.openstreetmap.org/way/192085504#map=16/48.1116/-1.6587), pour le forum des associations (Rennes)
+* Le dimanche 24 septembre à 15h à [Lassy](https://www.openstreetmap.org/relation/134222#map=12/48.0351/-1.8048). *On vous donne les info sur le lieu bientôt*
 
 ## Les concerts où on a mis le feu 🔥
 
