@@ -1,6 +1,6 @@
 ## Nos prochains concerts ! 🎉💄
 
-* Le vendredi 23 juin à 20h30 au [Gabier Noir](https://www.openstreetmap.org/node/4955206124#map=18/48.10178/-1.67840) (Rennes)
+
 * Le dimanche 3 septembre 15h-17h au [parc Oberthur](https://www.openstreetmap.org/way/192085504#map=16/48.1116/-1.6587), pour le forum des associations (Rennes)
 * Le dimanche 24 septembre à 15h à [Lassy](https://www.openstreetmap.org/relation/134222#map=12/48.0351/-1.8048). *On vous donne les info sur le lieu bientôt*
 
@@ -8,6 +8,7 @@
 
 ### **2023**
 
+* Le vendredi 23 juin à 20h30 au [Gabier Noir](https://www.openstreetmap.org/node/4955206124#map=18/48.10178/-1.67840) (Rennes)
 * Le vendredi 2 juin à 20h30 à Hôtel Dieu (Rennes)
 * Le mercredi 17 mai à 19h au [restaurant Ana Ana ](https://www.facebook.com/AnaAnaPlouasne/)(Plouasne, [c'est ici](https://www.openstreetmap.org/way/263116412#map=16/48.3011/-2.0074)).
 * Le 5 mai à 19h30 aux [P'tits Bateaux](https://www.lesptitsbateaux-rennes.com/) (Rennes)
