@@ -1,6 +1,6 @@
 ## Nos prochains concerts ! 🎉💄
 
-* Le samedi 9 décembre vers 18h à [la Criée](https://www.la-criee.org/fr/infos-pratiques/) (Rennes), pour célébrer les 100 ans du lieu
+* Le samedi 9 décembre à 18h à [la Criée](https://openagenda.com/cet-hiver-a-rennes/events/la-criee-fete-ses-100-ans-) (Rennes), pour célébrer les 100 ans du lieu
 
 ## Les concerts où on a mis le feu 🔥
 
