@@ -1,7 +1,8 @@
 ## Nos prochains concerts ! 🎉💄
 
 * Le samedi 9 décembre à 18h à [la Criée](https://openagenda.com/cet-hiver-a-rennes/events/la-criee-fete-ses-100-ans-) (Rennes), pour célébrer les 100 ans du lieu
-* Le samedi 17 février 2024 à 20h30 l'Espace Claude Michel de Guipry-Messac dans le cadre des 10 ans du [Festival Tout se chante ! ](https://toutsechante.fr/evenements/nos-chorales-ont-du-talent-16-fevrier-2024/) 
+* Le samedi 17 février 2024 à 20h30 l'Espace Claude Michel de Guipry-Messac dans le cadre des 10 ans du [Festival Tout se chante ! ](https://toutsechante.fr/evenements/nos-chorales-ont-du-talent-16-fevrier-2024/)
+* Le dimanche 17 mars à 14h30 à la cafétéria du Centre Hospitalier Guillaume Regnier, à Rennes
 
 ## Les concerts où on a mis le feu 🔥
 
