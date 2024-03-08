@@ -1,13 +1,17 @@
 ## Nos prochains concerts ! 🎉💄
 
-* Le samedi 9 décembre à 18h à [la Criée](https://openagenda.com/cet-hiver-a-rennes/events/la-criee-fete-ses-100-ans-) (Rennes), pour célébrer les 100 ans du lieu
-* Le samedi 17 février 2024 à 20h30 l'Espace Claude Michel de Guipry-Messac dans le cadre des 10 ans du [Festival Tout se chante ! ](https://toutsechante.fr/evenements/nos-chorales-ont-du-talent-16-fevrier-2024/)
-* Le dimanche 17 mars à 14h30 à la cafétéria du Centre Hospitalier Guillaume Regnier, à Rennes
+* Le dimanche 17 mars à 14h30 au Centre socio-thérapeutique et culturel (CSTC) du Centre Hospitalier Guillaume Regnier, à Rennes ([plan d'accès](https://www.openstreetmap.org/way/80942610#map=18/48.11224/-1.64732)) dans le cadre du projet Ce·lleux qui nous entoure·nt du [Groupe Odyssées](https://groupe-odyssees.fr)
+* Le mercredi 20 mars à 20h au [Cercle Paul Bert Noroît](https://www.openstreetmap.org/way/80899045#map=17/48.11031/-1.71039) (pas loin du Roazhon Park), en soutien au Secours Populaire !
 
 ## Les concerts où on a mis le feu 🔥
 
+### **2024**
+
+* Le samedi 17 février 2024 à 20h30 l'Espace Claude Michel de Guipry-Messac dans le cadre des 10 ans du [Festival Tout se chante ! ](https://toutsechante.fr/evenements/nos-chorales-ont-du-talent-16-fevrier-2024/)
+
 ### **2023**
 
+* Le samedi 9 décembre à 18h à [la Criée](https://openagenda.com/cet-hiver-a-rennes/events/la-criee-fete-ses-100-ans-) (Rennes), pour célébrer les 100 ans du lieu
 * Le samedi 4 novembre à Saint-Brieuc de Mauron
 * Le dimanche 24 septembre à 15h à [Lassy](https://www.openstreetmap.org/relation/134222#map=12/48.0351/-1.8048).
 * Le dimanche 3 septembre 15h-17h au [parc Oberthur](https://www.openstreetmap.org/way/192085504#map=16/48.1116/-1.6587), (Rennes) pour le forum des associations
