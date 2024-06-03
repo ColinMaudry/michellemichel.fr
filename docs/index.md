@@ -1,13 +1,14 @@
 ## Nos prochains concerts ! 🎉💄
 
-* Le dimanche 17 mars à 14h30 au Centre socio-thérapeutique et culturel (CSTC) du Centre Hospitalier Guillaume Regnier, à Rennes ([plan d'accès](https://www.openstreetmap.org/way/80942610#map=18/48.11224/-1.64732)) dans le cadre du projet Ce·lleux qui nous entoure·nt du [Groupe Odyssées](https://groupe-odyssees.fr)
-* Le mercredi 20 mars à 20h au [Cercle Paul Bert Noroît](https://www.openstreetmap.org/way/80899045#map=17/48.11031/-1.71039) (pas loin du Roazhon Park), en soutien au Secours Populaire !
+* Le samedi 22 juin à 20h45 au Grand Cordel pour [La grande fête]([url](https://www.grand-cordel.com/2024/05/23/la-grande-fete-samedi-22-juin-des-17h/)) ([plan d'accès]([url](https://www.openstreetmap.org/way/75639530#map=17/48.12180/-1.64719)))
 
 ## Les concerts où on a mis le feu 🔥
 
 ### **2024**
 
-* Le samedi 17 février 2024 à 20h30 l'Espace Claude Michel de Guipry-Messac dans le cadre des 10 ans du [Festival Tout se chante ! ](https://toutsechante.fr/evenements/nos-chorales-ont-du-talent-16-fevrier-2024/)
+* Le mercredi 20 mars à 20h au [Cercle Paul Bert Noroît](https://www.openstreetmap.org/way/80899045#map=17/48.11031/-1.71039) (pas loin du Roazhon Park), en soutien au Secours Populaire !
+* Le dimanche 17 mars à 14h30 au Centre socio-thérapeutique et culturel (CSTC) du Centre Hospitalier Guillaume Regnier, à Rennes dans le cadre du projet Ce·lleux qui nous entoure·nt du [Groupe Odyssées](https://groupe-odyssees.fr)
+* Le samedi 17 février à 20h30 l'Espace Claude Michel de Guipry-Messac dans le cadre des 10 ans du [Festival Tout se chante ! ](https://toutsechante.fr/evenements/nos-chorales-ont-du-talent-16-fevrier-2024/)
 
 ### **2023**
 
