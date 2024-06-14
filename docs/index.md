@@ -1,6 +1,6 @@
 ## Nos prochains concerts ! 🎉💄
 
-* Le samedi 22 juin à 20h45 au Grand Cordel pour [La grande fête]([url](https://www.grand-cordel.com/2024/05/23/la-grande-fete-samedi-22-juin-des-17h/)) ([plan d'accès]([url](https://www.openstreetmap.org/way/75639530#map=17/48.12180/-1.64719)))
+* Le samedi 22 juin à 20h45 au Grand Cordel pour [La grande fête](https://www.grand-cordel.com/2024/05/23/la-grande-fete-samedi-22-juin-des-17h/) ([plan d'accès](https://www.openstreetmap.org/way/75639530#map=17/48.12180/-1.64719))
 
 ## Les concerts où on a mis le feu 🔥
 
