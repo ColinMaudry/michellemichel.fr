@@ -1,11 +1,18 @@
 ## Nos prochains concerts ! 🎉💄
 
-* Le samedi 22 juin à 20h45 au Grand Cordel pour [La grande fête](https://www.grand-cordel.com/2024/05/23/la-grande-fete-samedi-22-juin-des-17h/) ([plan d'accès](https://www.openstreetmap.org/way/75639530#map=17/48.12180/-1.64719))
+- Notre tournée d'été ! 🕶️🌻🏖️
+  - Le vendredi 23 août au festival [Les scènes déménagent]([url](https://www.lesscenesdemenagent.net/)) 🎸 à Fougères
+  - Le samedi 24 août aux Penn Sardines ([Facebook]([url](https://www.facebook.com/Lespennsardines/?locale=fr_FR))) 🐟 à Moëlan-sur-Mer (56) ([carte](https://cartes.app/?allez=Les+Penn+Sardines%7Cn7442784375%7C-3.6713%7C47.7846#14.67/47.7805/-3.67516/20/50))
+  - Le dimanche 25 août à la guinguette A-Dreuz à Lorient 🍻 ([carte](https://cartes.app/?allez=Tour+de+la+D%C3%A9couverte%7Cw1043731790%7C-3.3538%7C47.7453#16.31/47.74561/-3.354509/0/50))
+- Le vendredi 30 août aux [P'tits bateaux](https://www.lesptitsbateaux-rennes.com/) 🛥️, à Rennes ([carte](https://cartes.app/?allez=Les+P%27tits+Bateaux%7Cn8754005945%7C-1.6781%7C48.1230#16.18/48.123027/-1.678788/20/50))
+- Le vendredi 20 septembre au [Parc des bois](https://auparcdesbois.fr/) 🌳🌳🌳, la guinguette des Gayeulles, à Rennes ([carte](https://cartes.app/?allez=Au+Parc+des+Bois%7Cw80243315%7C-1.6424%7C48.1330#16.63/48.132447/-1.642525))
+- Le samedi 21 septembre pour la [Parade nautique](https://paradenautiquederennes.fr/) 🚣‍♀️, à Baud-Chardonnay, Rennes ([carte approximative](https://cartes.app/#17.78/48.109382/-1.651238))
 
 ## Les concerts où on a mis le feu 🔥
 
 ### **2024**
 
+* Le samedi 22 juin à 20h45 au Grand Cordel pour [La grande fête](https://www.grand-cordel.com/2024/05/23/la-grande-fete-samedi-22-juin-des-17h/) ([plan d'accès](https://www.openstreetmap.org/way/75639530#map=17/48.12180/-1.64719))
 * Le mercredi 20 mars à 20h au [Cercle Paul Bert Noroît](https://www.openstreetmap.org/way/80899045#map=17/48.11031/-1.71039) (pas loin du Roazhon Park), en soutien au Secours Populaire !
 * Le dimanche 17 mars à 14h30 au Centre socio-thérapeutique et culturel (CSTC) du Centre Hospitalier Guillaume Regnier, à Rennes dans le cadre du projet Ce·lleux qui nous entoure·nt du [Groupe Odyssées](https://groupe-odyssees.fr)
 * Le samedi 17 février à 20h30 l'Espace Claude Michel de Guipry-Messac dans le cadre des 10 ans du [Festival Tout se chante ! ](https://toutsechante.fr/evenements/nos-chorales-ont-du-talent-16-fevrier-2024/)
