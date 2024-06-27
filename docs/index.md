@@ -19,6 +19,7 @@
 
 ### **2023**
 
+* Le samedi 23 décembre à 20h pour le cabaret de Noël organisé au Jeu de paume, à Rennes, par le [Collectif d'animation centre-ville](https://www.helloasso.com/associations/collectif-d-animation-centre-ville)
 * Le samedi 9 décembre à 18h à [la Criée](https://openagenda.com/cet-hiver-a-rennes/events/la-criee-fete-ses-100-ans-) (Rennes), pour célébrer les 100 ans du lieu
 * Le samedi 4 novembre à Saint-Brieuc de Mauron
 * Le dimanche 24 septembre à 15h à [Lassy](https://www.openstreetmap.org/relation/134222#map=12/48.0351/-1.8048).
