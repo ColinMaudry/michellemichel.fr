@@ -1,8 +1,8 @@
 ## Nos prochains concerts ! 🎉💄
 
 - Notre tournée d'été ! 🕶️🌻🏖️
-  - Le vendredi 23 août au festival [Les scènes déménagent]([url](https://www.lesscenesdemenagent.net/)) 🎸 à Fougères
-  - Le samedi 24 août aux Penn Sardines ([Facebook]([url](https://www.facebook.com/Lespennsardines/?locale=fr_FR))) 🐟 à Moëlan-sur-Mer (56) ([carte](https://cartes.app/?allez=Les+Penn+Sardines%7Cn7442784375%7C-3.6713%7C47.7846#14.67/47.7805/-3.67516/20/50))
+  - Le vendredi 23 août au festival [Les scènes déménagent](https://www.lesscenesdemenagent.net/) 🎸 à Fougères
+  - Le samedi 24 août aux Penn Sardines ([Facebook](https://www.facebook.com/Lespennsardines/?locale=fr_FR)) 🐟 à Moëlan-sur-Mer (56) ([carte](https://cartes.app/?allez=Les+Penn+Sardines%7Cn7442784375%7C-3.6713%7C47.7846#14.67/47.7805/-3.67516/20/50))
   - Le dimanche 25 août à la guinguette A-Dreuz à Lorient 🍻 ([carte](https://cartes.app/?allez=Tour+de+la+D%C3%A9couverte%7Cw1043731790%7C-3.3538%7C47.7453#16.31/47.74561/-3.354509/0/50))
 - Le vendredi 30 août aux [P'tits bateaux](https://www.lesptitsbateaux-rennes.com/) 🛥️, à Rennes ([carte](https://cartes.app/?allez=Les+P%27tits+Bateaux%7Cn8754005945%7C-1.6781%7C48.1230#16.18/48.123027/-1.678788/20/50))
 - Le vendredi 20 septembre au [Parc des bois](https://auparcdesbois.fr/) 🌳🌳🌳, la guinguette des Gayeulles, à Rennes ([carte](https://cartes.app/?allez=Au+Parc+des+Bois%7Cw80243315%7C-1.6424%7C48.1330#16.63/48.132447/-1.642525))
