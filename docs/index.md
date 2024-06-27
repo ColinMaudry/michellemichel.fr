@@ -6,7 +6,7 @@
   - Le dimanche 25 août à la guinguette A-Dreuz à Lorient 🍻 ([carte](https://cartes.app/?allez=Tour+de+la+D%C3%A9couverte%7Cw1043731790%7C-3.3538%7C47.7453#16.31/47.74561/-3.354509/0/50))
 - Le vendredi 30 août aux [P'tits bateaux](https://www.lesptitsbateaux-rennes.com/) 🛥️, à Rennes ([carte](https://cartes.app/?allez=Les+P%27tits+Bateaux%7Cn8754005945%7C-1.6781%7C48.1230#16.18/48.123027/-1.678788/20/50))
 - Le vendredi 20 septembre au [Parc des bois](https://auparcdesbois.fr/) 🌳🌳🌳, la guinguette des Gayeulles, à Rennes ([carte](https://cartes.app/?allez=Au+Parc+des+Bois%7Cw80243315%7C-1.6424%7C48.1330#16.63/48.132447/-1.642525))
-- Le samedi 21 septembre pour la [Parade nautique](https://paradenautiquederennes.fr/) 🚣‍♀️, à Baud-Chardonnet, Rennes ([carte approximative](https://cartes.app/#17.78/48.109382/-1.651238))
+- Le samedi 21 septembre pour la [Parade nautique](https://paradenautiquederennes.fr/) 🚣‍♀️, à Baud-Chardonnet, Rennes ([carte](https://cartes.app/?allez=Plages+de+Baud%7Cw707600516%7C-1.6509%7C48.1090#17.06/48.109062/-1.651587))
 
 ## Les concerts où on a mis le feu 🔥
 
