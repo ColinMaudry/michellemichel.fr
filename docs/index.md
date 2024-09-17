@@ -1,9 +1,6 @@
 ## Nos prochains concerts ! 🎉💄
 
-- Notre tournée d'été ! 🕶️🌻🏖️
-  - Le vendredi 23 août au festival [Les scènes déménagent](https://www.lesscenesdemenagent.net/) 🎸 à Fougères
-  - Le samedi 24 août à 19h aux Penn Sardines ([Facebook](https://www.facebook.com/Lespennsardines/?locale=fr_FR)) 🐟 à Moëlan-sur-Mer (56) ([carte](https://cartes.app/?allez=Les+Penn+Sardines%7Cn7442784375%7C-3.6713%7C47.7846#14.67/47.7805/-3.67516/20/50))
-  - Le dimanche 25 août à la guinguette A-Dreuz à Lorient 🍻 ([carte](https://cartes.app/?allez=Tour+de+la+D%C3%A9couverte%7Cw1043731790%7C-3.3538%7C47.7453#16.31/47.74561/-3.354509/0/50))
+- Le mercredi 18 septembre de 19h à 20h, nous serons en direct sur [canal b](https://canalb.fr/), avec quelques chansons of course ! 📻 🎶
 - Le vendredi 20 septembre à 20h00 au [Parc des bois](https://auparcdesbois.fr/) 🌳🌳🌳, la guinguette des Gayeulles, à Rennes ([carte](https://cartes.app/?allez=Au+Parc+des+Bois%7Cw80243315%7C-1.6424%7C48.1330#16.63/48.132447/-1.642525))
 - Le samedi 21 septembre à 16h dans le cadre de la [Parade nautique](https://paradenautiquederennes.fr/) 🚣‍♀️, à Baud-Chardonnet, Rennes ([carte](https://cartes.app/?allez=Plages+de+Baud%7Cw707600516%7C-1.6509%7C48.1090#17.06/48.109062/-1.651587))
 - Le dimanche 30 septembre à 18h30 aux [P'tits bateaux](https://www.lesptitsbateaux-rennes.com/) 🛥️, à Rennes ([carte](https://cartes.app/?allez=Les+P%27tits+Bateaux%7Cn8754005945%7C-1.6781%7C48.1230#16.18/48.123027/-1.678788/20/50))
@@ -12,6 +9,10 @@
 
 ### **2024**
 
+- Notre tournée d'été ! 🕶️🌻🏖️
+  - Le vendredi 23 août au festival [Les scènes déménagent](https://www.lesscenesdemenagent.net/) 🎸 à Fougères
+  - Le samedi 24 août à 19h aux Penn Sardines ([Facebook](https://www.facebook.com/Lespennsardines/?locale=fr_FR)) 🐟 à Moëlan-sur-Mer (56) ([carte](https://cartes.app/?allez=Les+Penn+Sardines%7Cn7442784375%7C-3.6713%7C47.7846#14.67/47.7805/-3.67516/20/50))
+  - Le dimanche 25 août à la guinguette A-Dreuz à Lorient 🍻 ([carte](https://cartes.app/?allez=Tour+de+la+D%C3%A9couverte%7Cw1043731790%7C-3.3538%7C47.7453#16.31/47.74561/-3.354509/0/50))
 * Le samedi 22 juin à 20h45 au Grand Cordel pour [La grande fête](https://www.grand-cordel.com/2024/05/23/la-grande-fete-samedi-22-juin-des-17h/) ([plan d'accès](https://www.openstreetmap.org/way/75639530#map=17/48.12180/-1.64719))
 * Le mercredi 20 mars à 20h au [Cercle Paul Bert Noroît](https://www.openstreetmap.org/way/80899045#map=17/48.11031/-1.71039) (pas loin du Roazhon Park), en soutien au Secours Populaire !
 * Le dimanche 17 mars à 14h30 au Centre socio-thérapeutique et culturel (CSTC) du Centre Hospitalier Guillaume Regnier, à Rennes dans le cadre du projet Ce·lleux qui nous entoure·nt du [Groupe Odyssées](https://groupe-odyssees.fr)
