@@ -1,14 +1,15 @@
 ## Nos prochains concerts ! 🎉💄
 
-- Le mercredi 18 septembre de 19h à 20h, nous serons en direct sur [canal b](https://canalb.fr/), avec quelques chansons of course ! 📻 🎶
-- Le vendredi 20 septembre à 20h00 au [Parc des bois](https://auparcdesbois.fr/) 🌳🌳🌳, la guinguette des Gayeulles, à Rennes ([carte](https://cartes.app/?allez=Au+Parc+des+Bois%7Cw80243315%7C-1.6424%7C48.1330#16.63/48.132447/-1.642525))
-- Le samedi 21 septembre à 16h dans le cadre de la [Parade nautique](https://paradenautiquederennes.fr/) 🚣‍♀️, à Baud-Chardonnet, Rennes ([carte](https://cartes.app/?allez=Plages+de+Baud%7Cw707600516%7C-1.6509%7C48.1090#17.06/48.109062/-1.651587))
-- Le dimanche 29 septembre à 18h30 aux [P'tits bateaux](https://www.lesptitsbateaux-rennes.com/) 🛥️, à Rennes ([carte](https://cartes.app/?allez=Les+P%27tits+Bateaux%7Cn8754005945%7C-1.6781%7C48.1230#16.18/48.123027/-1.678788/20/50))
+- Le jeudi 12 décembre aux Ateliers du vent, à 20h, pour le marché de Noël 🎅🤶🦌
 
 ## Les concerts où on a mis le feu 🔥
 
 ### **2024**
 
+- Le dimanche 29 septembre à 18h30 aux [P'tits bateaux](https://www.lesptitsbateaux-rennes.com/) 🛥️, à Rennes ([carte](https://cartes.app/?allez=Les+P%27tits+Bateaux%7Cn8754005945%7C-1.6781%7C48.1230#16.18/48.123027/-1.678788/20/50))
+- Le samedi 21 septembre à 16h dans le cadre de la [Parade nautique](https://paradenautiquederennes.fr/) 🚣‍♀️, à Baud-Chardonnet, Rennes ([carte](https://cartes.app/?allez=Plages+de+Baud%7Cw707600516%7C-1.6509%7C48.1090#17.06/48.109062/-1.651587))
+- Le vendredi 20 septembre à 20h00 au [Parc des bois](https://auparcdesbois.fr/) 🌳🌳🌳, la guinguette des Gayeulles, à Rennes ([carte](https://cartes.app/?allez=Au+Parc+des+Bois%7Cw80243315%7C-1.6424%7C48.1330#16.63/48.132447/-1.642525))
+- Le mercredi 18 septembre de 19h à 20h, nous serons en direct sur [canal b](https://canalb.fr/), avec quelques chansons of course ! 📻 🎶
 - Notre tournée d'été ! 🕶️🌻🏖️
   - Le vendredi 23 août au festival [Les scènes déménagent](https://www.lesscenesdemenagent.net/) 🎸 à Fougères
   - Le samedi 24 août à 19h aux Penn Sardines ([Facebook](https://www.facebook.com/Lespennsardines/?locale=fr_FR)) 🐟 à Moëlan-sur-Mer (56) ([carte](https://cartes.app/?allez=Les+Penn+Sardines%7Cn7442784375%7C-3.6713%7C47.7846#14.67/47.7805/-3.67516/20/50))
