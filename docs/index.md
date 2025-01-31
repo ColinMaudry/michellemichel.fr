@@ -1,5 +1,5 @@
 ## Nos prochains concerts ! 🎉💄
-- le samedi 15 mars pour la soirée de clôture du carnaval de Rennes, à la salle de la Cité, à partir de 18h30 ! 🤠 🤿 ([infos et billeterie]([url](https://www.helloasso.com/associations/la-pulse/evenements/15-mars-2025-soiree-carnaval-de-rennes)))
+- le samedi 15 mars pour la soirée de clôture du carnaval de Rennes, à la salle de la Cité, à partir de 18h30 ! 🤠 🤿 ([infos et billeterie](https://www.helloasso.com/associations/la-pulse/evenements/15-mars-2025-soiree-carnaval-de-rennes))
 
 ## Les concerts où on a mis le feu 🔥
 
