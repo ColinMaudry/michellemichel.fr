@@ -1,11 +1,11 @@
 ## Nos prochains concerts ! 🎉💄
-
-- Le jeudi 12 décembre aux Ateliers du vent, à 20h, pour le marché de Noël 🎅🤶🦌
+- le samedi 15 mars pour la soirée de clôture du carnaval de Rennes, à la salle de la Cité, à partir de 18h30 ! 🤠 🤿 ([infos et billeterie]([url](https://www.helloasso.com/associations/la-pulse/evenements/15-mars-2025-soiree-carnaval-de-rennes)))
 
 ## Les concerts où on a mis le feu 🔥
 
 ### **2024**
 
+- Le jeudi 12 décembre aux Ateliers du vent, à 20h, pour le marché de Noël 🎅🤶🦌
 - Le dimanche 29 septembre à 18h30 aux [P'tits bateaux](https://www.lesptitsbateaux-rennes.com/) 🛥️, à Rennes ([carte](https://cartes.app/?allez=Les+P%27tits+Bateaux%7Cn8754005945%7C-1.6781%7C48.1230#16.18/48.123027/-1.678788/20/50))
 - Le samedi 21 septembre à 16h dans le cadre de la [Parade nautique](https://paradenautiquederennes.fr/) 🚣‍♀️, à Baud-Chardonnet, Rennes ([carte](https://cartes.app/?allez=Plages+de+Baud%7Cw707600516%7C-1.6509%7C48.1090#17.06/48.109062/-1.651587))
 - Le vendredi 20 septembre à 20h00 au [Parc des bois](https://auparcdesbois.fr/) 🌳🌳🌳, la guinguette des Gayeulles, à Rennes ([carte](https://cartes.app/?allez=Au+Parc+des+Bois%7Cw80243315%7C-1.6424%7C48.1330#16.63/48.132447/-1.642525))
