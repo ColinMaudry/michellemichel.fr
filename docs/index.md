@@ -1,9 +1,14 @@
 ## Nos prochains concerts ! 🎉💄
-- le samedi 15 mars pour la soirée de clôture du carnaval de Rennes, à la salle de la Cité, à partir de 18h30 ! 🤠 🤿 ([infos et billeterie](https://www.helloasso.com/associations/la-pulse/evenements/15-mars-2025-soiree-carnaval-de-rennes))
+
 - le dimanche 27 avril à 16h au [Grand Huit](https://cartes.app/?allez=Le%20Grand%20Huit%7Cn12071466529%7C-1.6692%7C48.1024) à Rennes ! 🤸🎢
-- le vendredi 20 juin à [la Basse cour](https://cartes.app/?allez=La%20Basse%20Cour%7Cw1283722350%7C-1.7270%7C48.0973#16.23/48.096835/-1.728019), à la Prévalaye ! (Rennes) 🐤🦆 
+- le vendredi 20 juin à [la Basse cour](https://cartes.app/?allez=La%20Basse%20Cour%7Cw1283722350%7C-1.7270%7C48.0973#16.23/48.096835/-1.728019), à la Prévalaye ! (Rennes) 🐤🦆
+- le dimanche 29 juin à 14h30, sur le [Mail François Mitterrand](https://cartes.app/?allez=Point%20sur%20la%20carte%7C%7C-1.6925%7C48.1089), dans le cadre du [festival Paillettes et mimolette](https://paillettesetmimolettes.fr) ✨🧀
 
 ## Les concerts où on a mis le feu 🔥
+
+### **2025**
+
+- le samedi 15 mars pour la soirée de clôture du carnaval de Rennes, à la salle de la Cité, à partir de 18h30 ! 🤠 🤿 ([infos et billeterie](https://www.helloasso.com/associations/la-pulse/evenements/15-mars-2025-soiree-carnaval-de-rennes))
 
 ### **2024**
 
