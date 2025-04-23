@@ -1,6 +1,7 @@
 ## Nos prochains concerts ! 🎉💄
 
 - le dimanche 27 avril à 16h au [Grand Huit](https://cartes.app/?allez=Le%20Grand%20Huit%7Cn12071466529%7C-1.6692%7C48.1024) à Rennes ! 🤸🎢
+- le vendredi 6 juin à 20h à la [Garden Partie](https://dev.cartes.app/?allez=Garden+Parties%7Cw707628178%7C-1.6522%7C48.1078#16.64/48.107915/-1.651806/0/40) ! 🥞🍅🍟
 - le vendredi 20 juin à [la Basse cour](https://cartes.app/?allez=La%20Basse%20Cour%7Cw1283722350%7C-1.7270%7C48.0973#16.23/48.096835/-1.728019), à la Prévalaye ! (Rennes) 🐤🦆
 - le dimanche 29 juin à 14h30, sur le [Mail François Mitterrand](https://cartes.app/?allez=Point%20sur%20la%20carte%7C%7C-1.6925%7C48.1089), dans le cadre du [festival Paillettes et mimolette](https://paillettesetmimolettes.fr) ✨🧀
 
