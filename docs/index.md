@@ -1,7 +1,7 @@
 ## Nos prochains concerts ! 🎉💄
 
 - dimanche 22 mars pendant le festival Entre là à Bourg-des-Comptes, organisé par les Poissons marcheurs ([réservation à prix libre](https://www.helloasso.com/associations/association-les-poissons-marcheurs/evenements/festival-entre-la-2026), salle Salle Janine Charrat à 17h)
-- vendredi 28 août au bar [le Point Zéro](https://cartes.app/?allez=Le+point+z%C3%A9ro\|n9961793997\|-2.03041|48.63509&clic=48.63789\|-2.03090#15.01/48.63708/-2.03459) à Saint-Malo 
+- vendredi 28 août au bar [le Point Zéro](https://cartes.app/?allez=Le+point+z%C3%A9ro\|n9961793997\|-2.03041\|48.63509&clic=48.63789\|-2.03090#15.01/48.63708/-2.03459) à Saint-Malo 
 
 ## Les concerts où on a mis le feu 🔥
 
