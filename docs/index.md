@@ -1,9 +1,14 @@
 ## Nos prochains concerts ! 🎉💄
 
-- le samedi 17 janvier à Augan ! 💥❤️‍🔥
-- le vendredi 23 janvier au café des Champs Libres à 20h (entrée à prix libre) ! 🎼🎡 ([instagram](https://www.instagram.com/p/DTkZzK5iKoc))
+- dimanche 22 mars pendant le festival Entre là à Bourg-des-Comptes, organisé par les Poissons marcheurs ([réservation à prix libre](https://www.helloasso.com/associations/association-les-poissons-marcheurs/evenements/festival-entre-la-2026), salle Salle Janine Charrat à 17h)
+- vendredi 28 août au bar [le Point Zéro](https://cartes.app/?allez=Le+point+z%C3%A9ro|n9961793997|-2.03041|48.63509&clic=48.63789|-2.03090#15.01/48.63708/-2.03459) à Saint-Malo 
 
 ## Les concerts où on a mis le feu 🔥
+
+### **2026**
+
+- le samedi 17 janvier à Augan ! 💥❤️‍🔥
+- le vendredi 23 janvier au café des Champs Libres à 20h (entrée à prix libre) ! 🎼🎡 ([instagram](https://www.instagram.com/p/DTkZzK5iKoc))
 
 ### **2025**
 
