@@ -1,6 +1,7 @@
 ## Nos prochains concerts ! 🎉💄
 
-- le jeudi 30 août à 20h à la [ferme de Quincé](https://cartes.app/?allez=Ferme+de+Quinc%C3%A9|n9887414352|-1.70054|48.13650#15/48.1365/-1.70054/15/40) ! (prix libre)
+- le jeudi 30 avril à 20h à la [ferme de Quincé](https://cartes.app/?allez=Ferme+de+Quinc%C3%A9|n9887414352|-1.70054|48.13650#15/48.1365/-1.70054/15/40) ! (prix libre)
+- le samedi 30 mai à 21h pour le [festival Vagabondages](https://www.ville-servonsurvilaine.fr/evenement/festival-vagabondages-cie/) à Servon-sur-Vilaine
 - le vendredi 28 août au bar [le Point Zéro](https://cartes.app/?allez=Le+point+z%C3%A9ro\|n9961793997\|-2.03041\|48.63509&clic=48.63789\|-2.03090#15.01/48.63708/-2.03459) à Saint-Malo 
 
 ## Les concerts où on a mis le feu 🔥
