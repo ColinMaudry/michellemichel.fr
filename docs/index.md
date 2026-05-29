@@ -1,11 +1,11 @@
 ## Nos prochains concerts ! 🎉💄
 
-- le jeudi 30 avril à 20h à la [ferme de Quincé](https://cartes.app/?allez=Ferme+de+Quinc%C3%A9\|n9887414352\|-1.70054|48.13650#15/48.1365/-1.70054/15/40) ! (prix libre)
+- le jeudi 30 avril à 20h à la [ferme de Quincé](https://cartes.app/?allez=Ferme+de+Quinc%C3%A9%7Cn9887414352%7C-1.70054%7C48.13650#15/48.1365/-1.70054/15/40) ! (prix libre)
 - le samedi 30 mai à 21h pour le [festival Vagabondages](https://www.ville-servonsurvilaine.fr/evenement/festival-vagabondages-cie/) à Servon-sur-Vilaine !
-- le vendredi 5 juin à 19h à la brasserie Sainte-Colombe à Corps-Nuds ! ([carte](https://cartes.app/?allez=Brasserie+Sainte-Colombe|w1335104961|-1.58006|47.98699#15.48/47.986015/-1.579524)) 🍻🌞
-- le samedi 13 juin à 16h sur le parvis en face de la Salle de la Cité à Rennes pour le festival du Jeu de paume ! ([carte](https://cartes.app/?clic=48.11443|-1.68204#17.31/48.114615/-1.681969/15/40)) 🧮🎈
-- le vendredi 19 juin en soirée à la guinguette La Minoterie à Marcillé Robert (près de Rétiers) ! ([carte](https://cartes.app/?allez=La+Minoterie|w83297750|-1.36617|47.94978#16.13/47.949146/-1.36784)) 🍷🪗
-- le vendredi 28 août au bar [le Point Zéro](https://cartes.app/?allez=Le+point+z%C3%A9ro\|n9961793997\|-2.03041\|48.63509&clic=48.63789\|-2.03090#15.01/48.63708/-2.03459) à Saint-Malo 
+- le vendredi 5 juin à 19h à la brasserie Sainte-Colombe à Corps-Nuds ! ([carte](https://cartes.app/?allez=Brasserie+Sainte-Colombe%7Cw1335104961%7C-1.58006%7C47.98699#15.48/47.986015/-1.579524)) 🍻🌞
+- le samedi 13 juin à 16h sur le parvis en face de la Salle de la Cité à Rennes pour le festival du Jeu de paume ! ([carte](https://cartes.app/?clic=48.11443%7C-1.68204#17.31/48.114615/-1.681969/15/40)) 🧮🎈
+- le vendredi 19 juin en soirée à la guinguette La Minoterie à Marcillé Robert (près de Rétiers) ! ([carte](https://cartes.app/?allez=La+Minoterie%7Cw83297750%7C-1.36617%7C47.94978#16.13/47.949146/-1.36784)) 🍷🪗
+- le vendredi 28 août au bar [le Point Zéro](https://cartes.app/?allez=Le+point+z%C3%A9ro%7Cn9961793997%7C-2.03041%7C48.63509&clic=48.63789%7C-2.03090#15.01/48.63708/-2.03459) à Saint-Malo 
 
 ## Les concerts où on a mis le feu 🔥
 
