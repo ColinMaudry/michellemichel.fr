@@ -1,6 +1,6 @@
 ## Nos prochains concerts ! 🎉💄
 
-- le jeudi 30 avril à 20h à la [ferme de Quincé](https://cartes.app/?allez=Ferme+de+Quinc%C3%A9|n9887414352|-1.70054|48.13650#15/48.1365/-1.70054/15/40) ! (prix libre)
+- le jeudi 30 avril à 20h à la [ferme de Quincé](https://cartes.app/?allez=Ferme+de+Quinc%C3%A9\|n9887414352\|-1.70054|48.13650#15/48.1365/-1.70054/15/40) ! (prix libre)
 - le samedi 30 mai à 21h pour le [festival Vagabondages](https://www.ville-servonsurvilaine.fr/evenement/festival-vagabondages-cie/) à Servon-sur-Vilaine !
 - le vendredi 5 juin à 19h à la brasserie Sainte-Colombe à Corps-Nuds ! ([carte](https://cartes.app/?allez=Brasserie+Sainte-Colombe|w1335104961|-1.58006|47.98699#15.48/47.986015/-1.579524)) 🍻🌞
 - le samedi 13 juin à 16h sur le parvis en face de la Salle de la Cité à Rennes pour le festival du Jeu de paume ! ([carte](https://cartes.app/?clic=48.11443|-1.68204#17.31/48.114615/-1.681969/15/40)) 🧮🎈
