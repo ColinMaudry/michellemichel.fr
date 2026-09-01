@@ -1,11 +1,6 @@
 ## Nos prochains concerts ! 🎉💄
 
-- le jeudi 30 avril à 20h à la [ferme de Quincé](https://cartes.app/?allez=Ferme+de+Quinc%C3%A9%7Cn9887414352%7C-1.70054%7C48.13650#15/48.1365/-1.70054/15/40) ! (prix libre)
-- le samedi 30 mai à 21h pour le [festival Vagabondages](https://www.ville-servonsurvilaine.fr/evenement/festival-vagabondages-cie/) à Servon-sur-Vilaine !
-- le vendredi 5 juin à 19h à la brasserie Sainte-Colombe à Corps-Nuds ! ([carte](https://cartes.app/?allez=Brasserie+Sainte-Colombe%7Cw1335104961%7C-1.58006%7C47.98699#15.48/47.986015/-1.579524)) 🍻🌞
-- le samedi 13 juin à 16h sur le parvis en face de la Salle de la Cité à Rennes pour le festival du Jeu de paume ! ([carte](https://cartes.app/?clic=48.11443%7C-1.68204#17.31/48.114615/-1.681969/15/40)) 🧮🎈
-- le vendredi 19 juin en soirée à la guinguette La Minoterie à Marcillé Robert (près de Rétiers) ! ([carte](https://cartes.app/?allez=La+Minoterie%7Cw83297750%7C-1.36617%7C47.94978#16.13/47.949146/-1.36784)) 🍷🪗
-- le vendredi 28 août au bar [le Point Zéro](https://cartes.app/?allez=Le+point+z%C3%A9ro%7Cn9961793997%7C-2.03041%7C48.63509&clic=48.63789%7C-2.03090#15.01/48.63708/-2.03459) à Saint-Malo ! 🌊😎
+- le samedi 19 septembre à 19h à Rennes dans les locaux de l'association d'aide alimentaire [Cœurs résistants](https://www.coeurs-resistants.org/) pour leur grande fête annuelle ([4 ruelle du Faux-Pont](https://cartes.app/?allez=4+Ruelle+du+Faux+Pont%2C+35000+Rennes|n11301989467|-1.67267|48.10731&perspective=non#19/48.10731/-1.67267)) 🍽️✊🎉 !
 
 ## Les concerts où on a mis le feu 🔥
 
@@ -14,6 +9,12 @@
 - le dimanche 22 mars pendant le festival Entre là à Bourg-des-Comptes, organisé par les Poissons marcheurs ([réservation à prix libre](https://www.helloasso.com/associations/association-les-poissons-marcheurs/evenements/festival-entre-la-2026), salle Salle Janine Charrat à 17h)
 - le samedi 17 janvier à Augan ! 💥❤️‍🔥
 - le vendredi 23 janvier au café des Champs Libres à 20h (entrée à prix libre) ! 🎼🎡 ([instagram](https://www.instagram.com/p/DTkZzK5iKoc))
+- - le jeudi 30 avril à 20h à la [ferme de Quincé](https://cartes.app/?allez=Ferme+de+Quinc%C3%A9%7Cn9887414352%7C-1.70054%7C48.13650#15/48.1365/-1.70054/15/40) ! (prix libre)
+- le samedi 30 mai à 21h pour le [festival Vagabondages](https://www.ville-servonsurvilaine.fr/evenement/festival-vagabondages-cie/) à Servon-sur-Vilaine !
+- le vendredi 5 juin à 19h à la brasserie Sainte-Colombe à Corps-Nuds ! ([carte](https://cartes.app/?allez=Brasserie+Sainte-Colombe%7Cw1335104961%7C-1.58006%7C47.98699#15.48/47.986015/-1.579524)) 🍻🌞
+- le samedi 13 juin à 16h sur le parvis en face de la Salle de la Cité à Rennes pour le festival du Jeu de paume ! ([carte](https://cartes.app/?clic=48.11443%7C-1.68204#17.31/48.114615/-1.681969/15/40)) 🧮🎈
+- le vendredi 19 juin en soirée à la guinguette La Minoterie à Marcillé Robert (près de Rétiers) ! ([carte](https://cartes.app/?allez=La+Minoterie%7Cw83297750%7C-1.36617%7C47.94978#16.13/47.949146/-1.36784)) 🍷🪗
+- le vendredi 28 août au bar [le Point Zéro](https://cartes.app/?allez=Le+point+z%C3%A9ro%7Cn9961793997%7C-2.03041%7C48.63509&clic=48.63789%7C-2.03090#15.01/48.63708/-2.03459) à Saint-Malo ! 🌊😎
 
 ### **2025**
 
