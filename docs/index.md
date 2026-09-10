@@ -1,6 +1,6 @@
 ## Nos prochains concerts ! 🎉💄
 
-- le samedi 19 septembre à 19h à Rennes dans les locaux de l'association d'aide alimentaire [Cœurs résistants](https://www.coeurs-resistants.org/) pour leur grande fête annuelle ([4 ruelle du Faux-Pont](https://cartes.app/?allez=4+Ruelle+du+Faux+Pont%2C+35000+Rennes|n11301989467|-1.67267|48.10731&perspective=non#19/48.10731/-1.67267)) 🍽️✊🎉 !
+- le samedi 19 septembre à 19h à Rennes dans les locaux de l'association d'aide alimentaire [Cœurs résistants](https://www.coeurs-resistants.org/) pour leur grande fête annuelle ([4 ruelle du Faux-Pont](https://cartes.app/?allez=4+Ruelle+du+Faux+Pont%2C+35000+Rennes%7Cn11301989467%7C-1.67267%7C48.10731&perspective=non#19/48.10731/-1.67267)) 🍽️✊🎉 !
 
 ## Les concerts où on a mis le feu 🔥
 
