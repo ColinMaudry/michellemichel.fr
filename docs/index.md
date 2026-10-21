@@ -1,6 +1,7 @@
 ## Nos prochains concerts ! 🎉💄
 
-- le samedi 19 septembre à 19h à Rennes dans les locaux de l'association d'aide alimentaire [Cœurs résistants](https://www.coeurs-resistants.org/) pour leur grande fête annuelle ([4 ruelle du Faux-Pont](https://cartes.app/?allez=4+Ruelle+du+Faux+Pont%2C+35000+Rennes%7Cn11301989467%7C-1.67267%7C48.10731&perspective=non#19/48.10731/-1.67267)) 🍽️✊🎉 !
+- le jeudi 17 décembre à 19h au centre d'art contemporain La Criée, près de République ! On fêtera leur 30 ans 🎂🎇 ([c'est là](https://cartes.app/?allez=La+Cri%C3%A9e+centre+d%27art+contemporain%7Cn4017377793%7C-1.67963%7C48.10809))
+
 
 ## Les concerts où on a mis le feu 🔥
 
@@ -16,6 +17,7 @@
 - le vendredi 19 juin en soirée à la guinguette La Minoterie à Marcillé Robert (près de Rétiers) ! ([carte](https://cartes.app/?allez=La+Minoterie%7Cw83297750%7C-1.36617%7C47.94978#16.13/47.949146/-1.36784)) 🍷🪗
 - le samedi 29 août au [Bar des sports]([https://cartes.app/?allez=Le+point+z%C3%A9ro%7Cn9961793997%7C-2.03041%7C48.63509&clic=48.63789%7C-2.03090#15.01/48.63708/-2.03459](https://cartes.app/?allez=Bar+des+Sports%7Cn5319107257%7C-2.01307%7C48.63365&perspective=non#16.57/48.633569/-2.013335)) à Saint-Malo ! ⚽🎯
 - le dimanche 30 août au bar La mouette rieuse à Saint-Malo ! 🕊️🌦️
+- le samedi 19 septembre à 19h à Rennes dans les locaux de l'association d'aide alimentaire [Cœurs résistants](https://www.coeurs-resistants.org/) pour leur grande fête annuelle ([4 ruelle du Faux-Pont](https://cartes.app/?allez=4+Ruelle+du+Faux+Pont%2C+35000+Rennes%7Cn11301989467%7C-1.67267%7C48.10731&perspective=non#19/48.10731/-1.67267)) 🍽️✊🎉 !
 
 ### **2025**
 
