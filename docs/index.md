@@ -1,6 +1,6 @@
 ## Nos prochains concerts ! 🎉💄
 
-- le jeudi 17 décembre à 19h au centre d'art contemporain La Criée, près de République ! On fêtera leurs 30 ans 🎂🎇 ([c'est là](https://cartes.app/?allez=La+Cri%C3%A9e+centre+d%27art+contemporain%7Cn4017377793%7C-1.67963%7C48.10809))
+- le jeudi 17 décembre à 19h au centre d'art contemporain La Criée, près de République ! On fêtera leurs 40 ans 🎂🎇 ([c'est là](https://cartes.app/?allez=La+Cri%C3%A9e+centre+d%27art+contemporain%7Cn4017377793%7C-1.67963%7C48.10809))
 
 
 ## Les concerts où on a mis le feu 🔥
